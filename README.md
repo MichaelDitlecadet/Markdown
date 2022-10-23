@@ -31,7 +31,7 @@ Au départ, Jesse était chargé de le vendre dans la rue jusqu'à ce qu'un gros
 
 Walter White a redoublé d'efforts pour produire de plus en plus de méthamphétamine, et ils ont même volé des matières premières aux usines, comme la méthylamine, qui donne aux cristaux sa couleur bleue.[^2]
   
-Walter White gravirait alors les échelons, s'associant à des trafiquants de drogue de plus en plus importants comme Gus Fring[^3] pour exporter davantage de méthamphétamine bleue, construisant ainsi un empire tout en amassant des millions de dollars.  
+Walter White gravirait alors les échelons, s'associant à des trafiquants de drogue de plus en plus importants comme [***Gus Fring***](https://breakingbad.fandom.com/wiki/Gustavo_Fring "Redirection vers Wiki Fandom")[^3] pour exporter davantage de méthamphétamine bleue, construisant ainsi un empire tout en amassant des millions de dollars.  
 
 
 
