@@ -51,4 +51,6 @@ Ce parteneriat avec Gustavo Fring s'est révélé si lucratif que Walter a pu d�
 [^3]: ***Gus Fring*** était le propriétaire d'une chaine de restauration rapide basée au Nouveau Mexique s'intitulant *Los Pollos Hermanos*
 ___
 
-*La morale de cette série est que le crime paye mais ne vaut pas le coup et que les actions ont des conséquences.*
+*La morale de cette série est que :*  
+- le crime paye mais ne vaut pas le coup;  
+- Les actions ont des conséquences.
