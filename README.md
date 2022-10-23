@@ -31,7 +31,14 @@ Au départ, Jesse était chargé de le vendre dans la rue jusqu'à ce qu'un gros
 
 Walter White a redoublé d'efforts pour produire de plus en plus de méthamphétamine, et ils ont même volé des matières premières aux usines, comme la méthylamine, qui donne aux cristaux sa couleur bleue.[^2]
   
-Walter White gravirait alors les échelons, s'associant à des trafiquants de drogue de plus en plus importants comme [***Gus Fring***](https://breakingbad.fandom.com/wiki/Gustavo_Fring "Redirection vers Wiki Fandom")[^3] pour exporter davantage de méthamphétamine bleue, construisant ainsi un empire tout en amassant des millions de dollars.  
+Walter White gravit alors les échelons, s'associant à des trafiquants de drogue de plus en plus importants comme [***Gustavo Fring***](https://breakingbad.fandom.com/wiki/Gustavo_Fring "Redirection vers Wiki Fandom")[^3]  
+
+![Gust Fring](https://www.journaldugeek.com/content/uploads/2021/09/template-images-jdg-pptx11-2.jpg)  
+| **Image de Gustavo Fring** |
+|  :----: |  
+> Gustavo Fring est un distributeur majeur de narcotiques qui a permit à Walter White (alias Heisenberg) de se créer un véritable empire de la drogue.
+
+Ce parteneriat avec Gustavo Fring s'est révélé si lucratif que Walter a pu dépasser Gustavo et amasser plus d'argent que lui.
 
 
 
