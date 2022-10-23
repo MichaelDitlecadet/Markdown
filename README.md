@@ -3,7 +3,7 @@
 ___
 
 **Breaking Bad** est une série télévisée américaine qui peut être visionée sur des plateformes de streaming tels que Netflix.
-Le personnage principal est ***Walter White***, un professeur de chimie surqualifié enseignant dans un lycée.
+Le personnage principal est [***Walter White***](https://fr.wikipedia.org/wiki/Walter_White_(personnage)/ "Redirection vers wikipedia"), un professeur de chimie surqualifié enseignant dans un lycée.
 
 ![Image de Walter White](https://cflvdg.avoz.es/sc/TUhviy8mmjqK3R6MvkIObrRocrc=/480x/2013/08/12/00121376301301448682755/Foto/.jpg)  
 | **Image de Walter White** |
