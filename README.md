@@ -31,7 +31,7 @@ Au départ, Jesse était chargé de le vendre dans la rue jusqu'à ce qu'un gros
 
 Walter White a redoublé d'efforts pour produire de plus en plus de méthamphétamine, et ils ont même volé des matières premières aux usines, comme la méthylamine, qui donne aux cristaux sa couleur bleue.[^2]
   
-Walter White gravirait alors les échelons, s'associant à des trafiquants de drogue de plus en plus importants pour exporter davantage de méthamphétamine bleue, construisant ainsi un empire tout en amassant des millions de dollars.  
+Walter White gravirait alors les échelons, s'associant à des trafiquants de drogue de plus en plus importants comme Gus Fring[^3] pour exporter davantage de méthamphétamine bleue, construisant ainsi un empire tout en amassant des millions de dollars.  
 
 
 
@@ -39,9 +39,9 @@ Walter White gravirait alors les échelons, s'associant à des trafiquants de dr
 | **Image de Heisenberg et Jesse Pinkman `(à gauche)`** |
 |  :----: |
   
-[^1]: La méthylamine est une matière première utilisée dans la fabrication de la meth.
-[^2]: Walter White utilisait initialement de la pseudoephedrine mais l'a vite remplacé par la méthylamine puisqu'il n'en avait plus en stock.
-
+[^1]: **La méthylamine** est une matière première utilisée dans la fabrication de la meth.
+[^2]: ***Walter White*** utilisait initialement de la pseudoephedrine mais l'a vite remplacé par la méthylamine puisqu'il n'en avait plus en stock.
+[^3]: ***Gus Fring*** était le propriétaire d'une chaine de restauration rapide basée au Nouveau Mexique s'intitulant *Los Pollos Hermanos*
 ___
 
 *La morale de cette série est que le crime paye mais ne vaut pas le coup et que les actions ont des conséquences.*
