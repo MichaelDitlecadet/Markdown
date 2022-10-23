@@ -22,7 +22,7 @@ C'est ainsi que Walter White a commencé à fabriquer sa propre méthamphétamin
 > La couleur bleue de la méthamphétamine est dûe à la méthylamine [^1]
   
   
-Au départ, Jesse était chargé de le vendre dans la rue jusqu'à ce qu'un gros revendeur s'intéresse au produit, Tuco Salamanca.  
+Au départ, Jesse était chargé de le vendre dans la rue jusqu'à ce qu'un gros revendeur s'intéresse au produit, [***Tuco Salamanca***](https://breakingbad.fandom.com/wiki/Tuco_Salamanca "Cette fois c'est pas Wikipedia").  
   
  
 ![Tuco Salamanca](https://www.cheatsheet.com/wp-content/uploads/2020/10/Tuco-Salamanca-1.jpg)  
