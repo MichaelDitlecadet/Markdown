@@ -46,7 +46,7 @@ Merci d'avoir lu jusqu'à la fin ce cours résumé sur la série Breaking Bad (j
 <details>
   <summary>👀</summary>
   
-  Easter egg 😳 ➡️ 
+  [Easter egg 😳](https://github.com/xXxZemmourxXx/Markdown/blob/main/le_md_c_eclat%C3%A9.gif)
   
 </details>  
   
