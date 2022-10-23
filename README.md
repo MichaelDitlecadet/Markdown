@@ -39,8 +39,16 @@ Walter White gravit alors les échelons, s'associant à des trafiquants de drogu
 > Gustavo Fring est un distributeur majeur de narcotiques qui a permit à Walter White (alias Heisenberg) de se créer un véritable empire de la drogue.
 
 Ce parteneriat avec Gustavo Fring s'est révélé si lucratif que Walter a pu dépasser Gustavo et amasser plus d'argent que lui.
+  
+___
+Merci d'avoir lu jusqu'à la fin ce cours résumé sur la série Breaking Bad (je n'ai pas pu évoquer la fin de la série car je ne l'ai pas finit et j'aimerai éviter de me faire spoil). 
 
+<details>
+<summary></summary>
 
+***Easter Egg 😳***
+
+</details>
 
 ![Heisenber et Jesse Pinkman](https://i2.wp.com/static1.moviewebimages.com/wordpress/wp-content/uploads/2022/03/breaking-bad-1.jpg)
 | **Image de Heisenberg et Jesse Pinkman `(à gauche)`** |
