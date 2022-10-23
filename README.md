@@ -45,7 +45,7 @@ Merci d'avoir lu jusqu'à la fin ce cours résumé sur la série Breaking Bad (j
 
 <details>
 <summary></summary>
-[***Easter Egg 😳***](blob:https://tenor.com/39ae60d0-0524-41cf-a11a-9ba7575a0d18)
+***Easter Egg 😳***
 
 </details>
 
