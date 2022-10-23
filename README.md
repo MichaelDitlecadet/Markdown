@@ -45,10 +45,11 @@ Merci d'avoir lu jusqu'à la fin ce cours résumé sur la série Breaking Bad (j
 
 <details>
 <summary></summary>
-
 [***Easter Egg 😳***](blob:https://tenor.com/39ae60d0-0524-41cf-a11a-9ba7575a0d18)
 
 </details>
+
+<!---Désolé d'utiliser du HTML pour l'easter egg mais il n'y avait pas la possibilité de faire une case "spoiler" en utilisant uniquement du Markdown--->
 
 ![Heisenber et Jesse Pinkman](https://i2.wp.com/static1.moviewebimages.com/wordpress/wp-content/uploads/2022/03/breaking-bad-1.jpg)
 | **Image de Heisenberg et Jesse Pinkman `(à gauche)`** |
